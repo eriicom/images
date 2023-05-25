@@ -1,2 +1,3 @@
-![image](https://github.com/eriicom/images/assets/99477272/b0ba9e84-2664-4dbd-9258-5f039b0be5c9)
 
+
+![osciloscopio2](https://github.com/eriicom/images/assets/99477272/166d718b-378e-4410-9bf4-d1173cd28051)
